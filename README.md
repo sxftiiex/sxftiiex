@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning code?!?!?!?!?
 - 💞️ I’m looking to collaborate on nada
 - 📫 How to reach me; dont
-- 😄 Pronouns: im a WOMAN
+- 😄 Pronouns: nun/ya
 - ⚡ Fun fact: peaches r my favourite fruit
